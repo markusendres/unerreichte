@@ -20,5 +20,5 @@ E-Mail: kontakt@unerreichte.de</p>
 
 <p>Quelle: <a href="https://www.e-recht24.de">eRecht24</a></p>
 
-<strong>Datenschutz</strong>
+<h2>Datenschutz</h2>
 Unsere Datenschutzhinweise finden Sie unter: <a href="https://unerreichte.de/datenschutzerklaerung">https://unerreichte.de/datenschutzerklaerung</a>
