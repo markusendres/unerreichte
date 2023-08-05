@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Gehen
-permalink: /gehen/
+title: Aktiv werden
+permalink: /aktiv-werden/
 ---
 
 Mehr Infos folgen:
