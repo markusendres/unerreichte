@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Ressourcen
-permalink: /ressourcen/
+title: Informieren
+permalink: /informieren/
 ---
 
 ## Webseiten
