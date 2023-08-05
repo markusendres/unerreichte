@@ -33,7 +33,6 @@ minima:
 header_pages:
   - informieren.md
   - beten.md
-  - geben.md
   - gehen.md
 
 # Build settings
