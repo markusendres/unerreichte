@@ -32,3 +32,4 @@ permalink: /zitate/
 
 "Jede große Bewegung Gottes kann auf eine betende Person zurück geführt werden."  
 *D.L. Moody* 
+
