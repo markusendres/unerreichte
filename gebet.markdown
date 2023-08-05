@@ -10,7 +10,7 @@ Die Webseite und App 'Unerreichte des Tages' (Englisch: Unreached of the day) Ap
 und steht in deutsch und anderen Sprachen zur Verfügung.
 
 Die Webseite ist hier zu finden:
-[unreachedoftheday.org](https://unreachedoftheday.org/))
+[unreachedoftheday.org](https://unreachedoftheday.org/)
 
 Die App kann hier bezogen werden:
 [Unerreichte des Tages App](https://unreachedoftheday.org/resources/mobile-app/)
