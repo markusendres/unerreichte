@@ -25,6 +25,7 @@ description: >- # this means to ignore newlines until "baseurl:"
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "https://markusendres.github.io/unerreichte" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: unerreichte
+repository: markusendres/unerreichte
 
 minima:
   date_format: "%d.%m.%Y"
