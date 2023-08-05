@@ -21,7 +21,7 @@
 title: Unerreichte Webseite
 email: unerreichte@example.com
 description: >- # this means to ignore newlines until "baseurl:"
-  Informationen über unerreichte Volksgruppen
+  Informationen über unerreichte Volksgruppen - [Über diese Seite](https://markusendres.github.io/unerreichte/ueber-uns)
 baseurl: "/" # the subpath of your site, e.g. /blog
 url: "https://markusendres.github.io/unerreichte" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: unerreichte
@@ -29,7 +29,8 @@ twitter_username: unerreichte
 header_pages:
   - informieren.md
   - beten.md
-  - about.md
+  - geben.md
+  - gehen.md
 
 # Build settings
 theme: minima
