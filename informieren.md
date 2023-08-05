@@ -7,7 +7,7 @@ order: 1
 
 ## Webseiten
 
-[Joshuaproject](www.joshuaproject.net)  
+[Joshuaproject](https://joshuaproject.net)  
 [Deutschsprachige Etnopedia](https://de.etnopedia.org/)  
 
 
