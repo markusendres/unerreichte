@@ -28,7 +28,7 @@ permalink: /zitate/
 *Dick Eastman*
 
 "Gebet ist nicht Gottes Widerwillen zu überwinden sondern seine Bereitschaft zu ergreiffen." (aus dem Englischen: "Prayer ist not overcoming God's reluctance, but laying hold of His willingness.")  
-*Verschiedenen Authoren zugeschrieben*
+*Verschiedenen Autoren zugeschrieben*
 
 "Jede große Bewegung Gottes kann auf eine betende Person zurück geführt werden."  
 *D.L. Moody* 
