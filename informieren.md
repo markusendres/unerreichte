@@ -26,3 +26,5 @@ folgen...
 [Im Schatten des Allmächtigen - Das Tagebuch Jim Elliots](https://www.cb-buchshop.de/396045000/im-schatten-des-allmaechtigen.html)
 
 ## Zitate
+
+Siehe Seite [Zitate](/zitate)
