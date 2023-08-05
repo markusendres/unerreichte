@@ -24,6 +24,11 @@ order: 1
 
 Mehr Videos auch auf dem <a href="https://www.youtube.com/@ethnos360deutschland7" target="_blank">Youtube-Kanal von ethnos360</a>
 
+## DVDs
+
+* <a href="https://www.cbuch.de/durch-den-tod-versoehnt-dvd.html" target="_blank">Durch den Tod versöhnt</a> - die überwältigende Geschichte der Auca-Missionare um Jim Elliot
+
+
 ## Präsentationen
 
 folgen...
@@ -31,11 +36,11 @@ folgen...
 ## Bücher
 
 * <a href="https://ethnos360.de/shop/produkte/berufen-zum-senden/" target="_blank">Berufen zum Senden (Neal Pirolo)</a>  
-* <a href="https://ethnos360.de/shop/produkte/aufbruch-zu-den-unerreichten/" target="_blank">Aufbruch zu den Unerreichten - Die Entstehungsgeschichte von New Tribes Mission</a>  
+* <a href="https://ethnos360.de/shop/produkte/aufbruch-zu-den-unerreichten/" target="_blank">Aufbruch zu den Unerreichten</a> - Die Entstehungsgeschichte von New Tribes Mission  
 
 #### Biographien
-* <a href="https://www.cb-buchshop.de/396045000/im-schatten-des-allmaechtigen.html" target="_blank">Im Schatten des Allmächtigen - Das Tagebuch Jim Elliots</a>  
-* <a href="https://ethnos360.de/shop/produkte/das-evangelium-in-der-gruenen-hoelle-boliviens/" target="_blank">Das Evangelium in der grünen Hölle Boliviens - Autobiografie eines Pioniermissionars in Bolivien.</a>  
+* <a href="https://www.cb-buchshop.de/396045000/im-schatten-des-allmaechtigen.html" target="_blank">Im Schatten des Allmächtigen</a> - Das Tagebuch Jim Elliots  
+* <a href="https://ethnos360.de/shop/produkte/das-evangelium-in-der-gruenen-hoelle-boliviens/" target="_blank">Das Evangelium in der grünen Hölle Boliviens</a> - Autobiografie eines Pioniermissionars in Bolivien  
 
 
 ## Zitate
