@@ -21,7 +21,7 @@ folgen...
 
 ## Bücher
 
-<a href="https://ethnos360.de/shop/produkte/berufen-zum-senden/" target="_blank">Berufen zum Senden (Neal Pirolo)</a>
+<a href="https://ethnos360.de/shop/produkte/berufen-zum-senden/" target="_blank">Berufen zum Senden (Neal Pirolo)</a>  
 <a href="https://ethnos360.de/shop/produkte/aufbruch-zu-den-unerreichten/" target="_blank">Aufbruch zu den Unerreichten - Die Entstehungsgeschichte von New Tribes Mission</a>
 
 #### Biographien
