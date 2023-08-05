@@ -4,7 +4,7 @@
 
 layout: home
 ---
-# Jesus Christus sagt:
+## Jesus Christus sagt:
 Mir ist gegeben alle Macht im Himmel und auf Erden.  So geht nun hin und macht zu Jüngern alle Völker, und tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes 20 und lehrt sie alles halten, was ich euch befohlen habe. Und siehe, ich bin bei euch alle Tage bis an das Ende der Weltzeit! Amen.
 (Matthäus 28,18b-20)
 
