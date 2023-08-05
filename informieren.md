@@ -26,4 +26,4 @@ folgen...
 
 ## Zitate
 
-Siehe Seite [Zitate](zitate)
+Siehe Seite [Zitate](/unerreichte/zitate)
