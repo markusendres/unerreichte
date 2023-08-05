@@ -12,7 +12,7 @@ Saarstr. 7<br />
 91052 Erlangen</p>
 
 <h2>Kontakt</h2>
-E-Mail: kontakt@unerreichte.de</p>
+<p>E-Mail: kontakt@unerreichte.de</p>
 
 <h2>Redaktionell verantwortlich</h2>
 <p>Markus Endres, Saarstr. 7, 91052 Erlangen</p>
