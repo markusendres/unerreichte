@@ -12,7 +12,6 @@ Saarstr. 7<br />
 91052 Erlangen</p>
 
 <h2>Kontakt</h2>
-<p>Telefon: 017686176121<br />
 E-Mail: kontakt@unerreichte.de</p>
 
 <h2>Redaktionell verantwortlich</h2>
