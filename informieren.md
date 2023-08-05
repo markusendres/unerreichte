@@ -18,7 +18,7 @@ permalink: /informieren/
 
 ## Videos
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/EgygLwLfKW0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/EgygLwLfKW0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 
 Mehr Videos auch auf dem <a href="https://www.youtube.com/@ethnos360deutschland7" target="_blank">Youtube-Kanal von ethnos360</a>
