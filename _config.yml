@@ -26,6 +26,11 @@ baseurl: "/" # the subpath of your site, e.g. /blog
 url: "https://markusendres.github.io/unerreichte" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: unerreichte
 
+header_pages:
+  - informieren.md
+  - beten.md
+  - about.md
+
 # Build settings
 theme: minima
 plugins:
