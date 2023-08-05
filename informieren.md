@@ -8,8 +8,8 @@ order: 1
 ## Webseiten
 
 ### Webseiten über unerreichte Volksgruppen
-* <a href="https://unredachedoftheday.org/" target="_blank">Unreached of the Day</a> - jeden Tag wird eine andere unerreichte Volksgruppe vorgestellt
-* <a href="https://joshuaproject.net/" target="_blank">Joshuaproject</a> - systematische Auflistung sämtlicher Volksgruppen und informationen zu Unerreichten
+* <a href="https://unreachedoftheday.org/" target="_blank">Unreached of the Day</a> - jeden Tag wird eine andere unerreichte Volksgruppe vorgestellt
+* <a href="https://joshuaproject.net/" target="_blank">Joshuaproject</a> - systematische Auflistung sämtlicher Volksgruppen und informationen zu Unerreichten auf Englisch
 * <a href="https://de.etnopedia.org/" target="_blank">Deutschsprachige Etnopedia</a> - Auflistung sehr vieler Volksgruppen mit Informationen auf Deutsch
 
 ### Webseiten von Missionswerken
