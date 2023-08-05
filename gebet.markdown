@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Gebet
-permalink: /gebet/
+title: Beten
+permalink: /beten/
 ---
 
 Das Gebet ist eine mächtige Waffe...
