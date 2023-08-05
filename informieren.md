@@ -2,6 +2,7 @@
 layout: page
 title: Informieren
 permalink: /informieren/
+order: 1
 ---
 
 ## Webseiten
