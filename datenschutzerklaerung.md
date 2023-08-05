@@ -20,14 +20,14 @@ Deine E-Mail-Adresse
 
 Wir werden die Daten löschen, sobald die Speicherung nicht mehr erforderlich ist oder die Verarbeitung einschränken, falls gesetzliche Aufbewahrungspflichten bestehen.
 
-Betroffenenrechte
+<h2>Betroffenenrechte</h2>
 Du hast als betroffene Person, das Recht auf Auskunft, das Recht auf Berichtigung oder Löschung, das Recht auf Einschränkung der Verarbeitung und das Recht auf Widerspruch gegen die Verarbeitung deiner Daten.
 
 Bitte richte deinen Widerspruch formlos an oben genannte Adresse.
 
 Darüber hinaus hast du das Recht auf Datenübertragbarkeit. Du hast weiter das Recht, dich bei einer Aufsichtsbehörde über die Verarbeitung zu beschweren. Eine Liste der entsprechenden Behörden findest du unter: https://www.bfdi.bund.de/DE/Infothek/Anschriften_Links/anschriften_links-node.html.
 
-Hosting
+<h2>Hosting</h2>
 Unser Hoster erhebt in sog. Logfiles folgende Daten, die dein Browser übermittelt:
 
 IP-Adresse, die Adresse der vorher besuchten Website (Referer Anfrage-Header), Datum und Uhrzeit der Anfrage, Zeitzonendifferenz zur Greenwich Mean Time, Inhalt der Anforderung, HTTP-Statuscode, übertragene Datenmenge, Website, von der die Anforderung kommt und Informationen zu Browser und Betriebssystem.
