@@ -19,3 +19,6 @@ E-Mail: kontakt@unerreichte.de</p>
 <p>Markus Endres, Saarstr. 7, 91052 Erlangen</p>
 
 <p>Quelle: <a href="https://www.e-recht24.de">eRecht24</a></p>
+
+<strong>Datenschutz</strong>
+Unsere Datenschutzhinweise finden Sie unter: <a href="https://unerreichte.de/datenschutzerklaerung">https://unerreichte.de/datenschutzerklaerung</a>
