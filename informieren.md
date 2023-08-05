@@ -44,4 +44,4 @@ folgen...
 
 ## Zitate
 
-Siehe Seite [Zitate](/unerreichte/zitate)
+Siehe Seite [Zitate](/zitate)
