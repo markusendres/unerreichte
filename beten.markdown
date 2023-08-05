@@ -2,6 +2,7 @@
 layout: page
 title: Beten
 permalink: /beten/
+order: 2
 ---
 
 Das Gebet ist eine mächtige Waffe...
