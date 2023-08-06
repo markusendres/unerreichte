@@ -30,6 +30,6 @@ Die Sprache kann eine sekundäre Abgrenzung sein.
 Was unterscheidet eine Volksgruppe von einer anderen?  
 Im Idealfall wird "Volksgruppe" immer so definiert, dass (a) alle Personen in der Gruppe einander einigermaßen gut verstehen und (b) die kulturellen/beziehungsmäßigen Barrieren nicht so hoch sind, dass die Weitergabe des Evangeliums ernsthaft behindert wird.  
 
-(Übersetzt von <a href="https://joshuaproject.net/resources/articles/what_is_a_people_group">Joshuaproject</a>)
+(Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/what_is_a_people_group">Joshuaproject</a>)
 
 ## Wie ist der Fortschritt bis heute?
