@@ -24,7 +24,7 @@ permalink: /zitate/
 "Auf keine andere Weise kann ein Gläubiger so vollständig in Gottes Arbeit eingebunden sein, insbesondere die Evangelisierung der Welt, wie im einstehenden Gebet."  
 *Dick Eastman*
 
-"Gebet ist nicht Gottes Widerwillen zu überwinden sondern seine Bereitschaft zu ergreiffen." (aus dem Englischen: "Prayer ist not overcoming God's reluctance, but laying hold of His willingness.")  
+"Gebet ist nicht Gottes Widerwillen zu überwinden sondern seine Bereitschaft zu ergreifen." (aus dem Englischen: "Prayer ist not overcoming God's reluctance, but laying hold of His willingness.")  
 *Verschiedenen Autoren zugeschrieben*
 
 "Jede große Bewegung Gottes kann auf eine betende Person zurück geführt werden."  
