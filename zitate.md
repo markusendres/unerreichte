@@ -30,3 +30,5 @@ permalink: /zitate/
 "Jede große Bewegung Gottes kann auf eine betende Person zurück geführt werden."  
 *D.L. Moody* 
 
+"Gott gebraucht Menschen, die schwach genug sind, um sich auf ihn zu stützen."  
+*Hudson Taylor*
