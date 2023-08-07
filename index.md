@@ -35,8 +35,9 @@ Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehl
 
 ## Was ist eine Volksgruppe?
 
-> "Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen."  
-(Quelle: Tagung des Lausanner Komitees 1982 in Chicago)  
+> "Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen."
+
+Quelle: Tagung des Lausanner Komitees 1982 in Chicago
 
 In den meisten Teilen der Welt ist die Sprachbarriere das Haupthindernis für die Verbreitung des Evangeliums.
 Daher ist es angebracht, Volksgruppen in erster Linie nach der Sprache zu definieren, 
