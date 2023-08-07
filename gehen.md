@@ -4,5 +4,4 @@ title: Aktiv werden
 permalink: /aktiv-werden/
 ---
 
-Mehr Infos folgen:
-...
+Mehr Infos folgen
