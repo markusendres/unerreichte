@@ -27,7 +27,7 @@ permalink: /zitate/
 "Gebet bedeutet nicht, Gottes Widerwillen zu überwinden, sondern seine Bereitschaft in Anspruch zu nehmen." (aus dem Englischen: "Prayer ist not overcoming God's reluctance, but laying hold of His willingness.")  
 *Verschiedenen Autoren zugeschrieben*
 
-"Jede große Bewegung Gottes kann auf eine betende Person zurückgeführt werden."
+"Jede große Bewegung Gottes kann auf eine betende Person zurückgeführt werden."  
 *D.L. Moody* 
 
 "Gott gebraucht Menschen, die schwach genug sind, um sich auf ihn zu stützen."  
