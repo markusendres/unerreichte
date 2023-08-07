@@ -30,7 +30,7 @@ Mehr Videos auch auf dem <a href="https://www.youtube.com/@ethnos360deutschland7
 
 ## Präsentationen
 
-folgen ...
+folgen  
 
 ## Bücher
 
