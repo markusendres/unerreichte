@@ -39,7 +39,7 @@ Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehl
 
 <em>Quelle: Tagung des Lausanner Komitees 1982 in Chicago</em>
 
-In den meisten Teilen der Welt ist die Sprachbarriere das Haupthindernis für die Verbreitung des Evangeliums.
+In den meisten Teilen der Welt stellt die Sprachbarriere das Haupthindernis für die Verbreitung des Evangeliums dar.
 Daher ist es angebracht, Volksgruppen in erster Linie nach der Sprache zu definieren, 
 und sich dabei die Möglichkeit offen zu halten, anhand von Dialekten oder kulturellen Variationen Unterteilungen festzulegen.
 Eine solche Liste kann als ethno-linguistische Liste von Völkern bezeichnet werden.
