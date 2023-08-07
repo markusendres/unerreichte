@@ -42,12 +42,10 @@ In den meisten Teilen der Welt ist die Sprachbarriere das Haupthindernis für di
 Daher ist es angebracht, Volksgruppen in erster Linie nach der Sprache zu definieren, 
 und sich dabei die Möglichkeit offen zu halten anhand von Dialekten oder kulturellen Variationen Unterteilungen festzulegen.
 Eine solche Liste kann als ethno-linguistische Liste von Völkern bezeichnet werden.
-"Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen.  
-In anderen Teilen der Welt, vor allem in Teilen Südasiens, ist die Akzeptanz ein größeres Hindernis als die Verständlichkeit. 
-In diesen Regionen können Kaste, religiöse Tradition, Standort und gemeinsame Geschichten und Legenden als primäre Abgrenzung der einzelnen Volksgruppen dienen. 
-Die Sprache kann eine sekundäre Abgrenzung sein.
-Was unterscheidet eine Volksgruppe von einer anderen?  
-Im Idealfall wird "Volksgruppe" immer so definiert, dass (a) alle Personen in der Gruppe einander einigermaßen gut verstehen und (b) die kulturellen/beziehungsmäßigen Barrieren nicht so hoch sind, dass die Weitergabe des Evangeliums ernsthaft behindert wird.  
+Es gibt aber auch Gebiete in der Welt, vor allem in Teilen Südasiens, in denen nicht die Verständigung das größte Hindernis darstellt, sondern die Bereitschaft zur Annahme des Evangeliums. In diesen Regionen können die Kastenzugehörigkeit, religiöse Traditionen, der Standort oder auch identitätsstiftende Geschichten und Legenden als primäre Abgrenzung der einzelnen Volksgruppen dienen. Die Sprache kann als sekundäres Unterscheidungsmerkmal hinzugezogen werden.  
+
+**Was unterscheidet eine Volksgruppe von einer anderen?** 
+Im Idealfall wird “Volksgruppe” immer so definiert, dass (a) alle Personen in der Gruppe einander einigermaßen gut verstehen und (b) die kulturellen/beziehungsmäßigen Barrieren nicht so hoch sind, dass die Weitergabe des Evangeliums ernsthaft behindert wird.
 
 (Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/what_is_a_people_group">Joshuaproject</a>)
 
