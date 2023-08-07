@@ -5,7 +5,7 @@
 layout: home
 title: Unerreichte Volksgruppen
 ---
-***Jesus Christus spricht:***
+**Jesus Christus spricht:**
 
 Mir ist gegeben alle Macht im Himmel und auf Erden.  
 So geht nun hin und macht zu Jüngern alle Völker,
