@@ -5,7 +5,7 @@ permalink: /beten/
 order: 2
 ---
 
-Das Gebet ist eine mächtige Waffe ...
+Das Gebet ist eine mächtige Waffe.
 
 # Webseite und App 'Unerreichte des Tages'
 
