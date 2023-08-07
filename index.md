@@ -31,7 +31,7 @@ Im Missionsbefehl hat Jesus seinen Nachfolgern befohlen, alle ethnischen Gruppen
 Jesus befahl seinen Nachfolgern, alle Nationen zu Jüngern zu machen, d. h. alle ethnischen Gruppen.
 Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehls betrachtet.
 
-(Quelle: <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
+(Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
 
 ## Was ist eine Volksgruppe?
 
