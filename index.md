@@ -31,7 +31,7 @@ Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org
 Im Missionsbefehl hat Jesus seinen Nachfolgern befohlen, alle ethnischen Gruppen zu Jüngern zu machen.
 Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehls betrachtet.
 
-(Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
+(Frei übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
 
 ## Was ist eine Volksgruppe?
 
@@ -44,9 +44,9 @@ und sich dabei die Möglichkeit offen zu halten anhand von Dialekten oder kultur
 Eine solche Liste kann als ethno-linguistische Liste von Völkern bezeichnet werden.
 Es gibt aber auch Gebiete in der Welt, vor allem in Teilen Südasiens, in denen nicht die Verständigung das größte Hindernis darstellt, sondern die Bereitschaft zur Annahme des Evangeliums. In diesen Regionen können die Kastenzugehörigkeit, religiöse Traditionen, der Standort oder auch identitätsstiftende Geschichten und Legenden als primäre Abgrenzung der einzelnen Volksgruppen dienen. Die Sprache kann als sekundäres Unterscheidungsmerkmal hinzugezogen werden.  
 
-**Was unterscheidet eine Volksgruppe von einer anderen?** 
+**Was unterscheidet eine Volksgruppe von einer anderen?**  
 Im Idealfall wird “Volksgruppe” immer so definiert, dass (a) alle Personen in der Gruppe einander einigermaßen gut verstehen und (b) die kulturellen/beziehungsmäßigen Barrieren nicht so hoch sind, dass die Weitergabe des Evangeliums ernsthaft behindert wird.
 
-(Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/what_is_a_people_group">Joshuaproject</a>)
+(Frei übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/what_is_a_people_group">Joshuaproject</a>)
 
 ## Wie ist der Fortschritt bis heute?
