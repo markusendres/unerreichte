@@ -18,7 +18,7 @@ Doch wie definieren wir eigentlich alle Völker und wie weit sind wir bis heute 
 
 Manchmal hört man die Bemerkung: "Sicherlich hat inzwischen fast jeder von Jesus gehört. 
 Sicherlich sind in jedes Land Missionare gesandt worden. Haben wir den Missionsbefehl nicht so gut wie erfüllt?"
-Obwohl die Verbreitung des Christentums geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
+Obwohl die Verbreitung des chrislichen Glaubens geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
 
 Länder oder Nationen?  
 
