@@ -42,7 +42,7 @@ Zitat aus der Tagung des Lausanner Komitees 1982 in Chicago
 In den meisten Teilen der Welt stellt die Sprachbarriere das Haupthindernis für die Verbreitung des Evangeliums dar.
 Daher ist es angebracht, Volksgruppen in erster Linie nach der Sprache zu definieren, 
 und sich dabei die Möglichkeit offen zu halten, anhand von Dialekten oder kulturellen Variationen Unterteilungen festzulegen.
-Eine solche Liste kann als ethno-linguistische Liste von Völkern bezeichnet werden.
+Eine solche Liste kann als ethno-linguistische Liste von Völkern bezeichnet werden.  
 Es gibt aber auch Gebiete in der Welt, vor allem in Teilen Südasiens, in denen nicht die Verständigung das größte Hindernis darstellt, sondern die Bereitschaft zur Annahme des Evangeliums. In diesen Regionen können die Kastenzugehörigkeit, religiöse Traditionen, der Standort oder auch identitätsstiftende Geschichten und Legenden als primäre Abgrenzung der einzelnen Volksgruppen dienen. Die Sprache kann als sekundäres Unterscheidungsmerkmal hinzugezogen werden.  
 
 **Was unterscheidet eine Volksgruppe von einer anderen?**  
