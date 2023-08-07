@@ -19,7 +19,7 @@ Die App kann hier bezogen werden:
 [Unerreichte des Tages App](https://unreachedoftheday.org/resources/mobile-app/)
 
 # Gebetsmails, Zeitschriften und Gebetsnachrichten
-Einige Missionswerke bieten Informationen an. Dies ist eine gute Quelle um konkret für ihre Anliegen zu beten.
+Einige Missionswerke bieten Informationen an. Diese konkreten Informationen und Anliegen helfen zum beten.
 
 * <a href="https://ethnos360.de/nachrichten/">Nachrichten von Ethnos360</a> - Zeitschrift 'Gehet hin' (4 mal pro Jahr) und Gebetsanliegen per E-Mail
 
