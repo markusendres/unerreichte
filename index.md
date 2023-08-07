@@ -20,7 +20,7 @@ Manchmal hört man die Bemerkung: "Sicherlich hat inzwischen fast jeder von Jesu
 Sicherlich sind in jedes Land Missionare gesandt worden. Haben wir den Missionsbefehl nicht so gut wie erfüllt?"
 Obwohl die Verbreitung des chrislichen Glaubens geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
 
-Länder oder Nationen?  
+Sind mit "alle Völker" Länder oder Nationen gemeint?  
 
 Das Evangelium ist zwar in jedes politische Land der Welt gelangt, aber als Jesus seinen Nachfolgern in Matthäus 28,18-20 befahl, "alle Völker zu Jüngern zu machen", bezog er sich nicht auf politische Nationen wie Kanada, Kenia, Russland usw. 
 Viele von ihnen, wie z. B. die Vereinigten Staaten, existierten noch gar nicht, als Jesus diesen Befehl erteilte.
