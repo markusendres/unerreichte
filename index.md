@@ -7,11 +7,11 @@ title: Unerreichte Volksgruppen
 ---
 **Jesus Christus spricht:**
 
-> "Mir ist gegeben alle Macht im Himmel und auf Erden.  
+> Mir ist gegeben alle Macht im Himmel und auf Erden.  
 So geht nun hin und macht zu Jüngern alle Völker,
 und tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes und lehrt sie alles halten,
 was ich euch befohlen habe.  
-Und siehe, ich bin bei euch alle Tage bis an das Ende der Weltzeit! Amen."  
+Und siehe, ich bin bei euch alle Tage bis an das Ende der Weltzeit! Amen.  
 
 Matthäus 28,18b-20  
 
@@ -35,7 +35,7 @@ Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehl
 
 ## Was ist eine Volksgruppe?
 
-> "Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen."
+> Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen.
 
 Quelle: Tagung des Lausanner Komitees 1982 in Chicago  
 
