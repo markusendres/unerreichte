@@ -29,7 +29,7 @@ Das Wort, das im griechischen Orginaltext für Nationen steht, ist "ethne", wora
 "Ethne" bezeichnet Nicht-Juden beziehungsweise eine Ansammlung von Individuen mit einer gemeinsamen Identität.
 Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org/articles/unreached-peoples#Exposition">hier</a> (englischsprachiger Artikel).  
 Im Missionsbefehl hat Jesus seinen Nachfolgern befohlen, alle ethnischen Gruppen zu Jüngern zu machen.
-Das macht bezüglich des Umfangs des Missionsbefehls einen dramatischen Unterschied aus.
+Das macht für den Umfangs des Missionsbefehls einen dramatischen Unterschied aus.
 
 (Frei übersetzt ins Deutsche aus <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
 
