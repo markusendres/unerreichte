@@ -20,15 +20,14 @@ Manchmal hört man die Bemerkung: "Sicherlich hat inzwischen fast jeder von Jesu
 Sicherlich sind in jedes Land Missionare gesandt worden. Haben wir den Missionsbefehl nicht so gut wie erfüllt?"
 Obwohl die Verbreitung des chrislichen Glaubens geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
 
-<b>Sind mit "alle Völker" Länder oder Nationen gemeint?</b>. 
+<b>Sind mit "alle Völker" Länder oder Nationen gemeint?</b>
 
 Das Evangelium ist zwar in jedes politische Land der Welt gelangt, aber als Jesus seinen Nachfolgern in Matthäus 28,18-20 befahl, "alle Völker zu Jüngern zu machen", bezog er sich nicht auf politische Nationen wie Kanada, Kenia, Russland usw. 
 Viele von ihnen, wie z. B. die Vereinigten Staaten, existierten noch gar nicht, als Jesus diesen Befehl erteilte.
 Das Wort, das Jesus im Griechischen für Nationen verwendete, ist "ethne", woraus sich das englische Wort "ethnic" ableitet. 
 "Ethne" kann einfach jeden Nicht-Juden, d.h. Nichtjuden, bedeuten oder eine Ansammlung von Individuen mit einer gemeinsamen Identität bezeichnen.
-Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org/articles/unreached-peoples#Exposition">hier</a> (Englischsprachiger Artikel). 
+Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org/articles/unreached-peoples#Exposition">hier</a> (englischsprachiger Artikel). 
 Im Missionsbefehl hat Jesus seinen Nachfolgern befohlen, alle ethnischen Gruppen zu Jüngern zu machen.
-Jesus befahl seinen Nachfolgern, alle Nationen zu Jüngern zu machen, d. h. alle ethnischen Gruppen.
 Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehls betrachtet.
 
 (Übersetzt ins Deutsche - Quelle: <a href="https://joshuaproject.net/resources/articles/has_everyone_heard">Joshua Project</a>)
