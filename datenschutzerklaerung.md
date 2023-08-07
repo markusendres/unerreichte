@@ -10,7 +10,7 @@ Verantwortlich im Sinne der DSGVO ist:
 <p>Markus Endres<br />
 Saarstr. 7<br />
 91052 Erlangen<br />
-kontakt@unerreichte.de</p>
+kontakt[at]unerreichte.de</p>
 
 Solltest du per E-Mail mit uns Kontakt aufnehmen, werden die mitgeteilten Daten von uns gespeichert, um dein Anliegen zu bearbeiten.
 
