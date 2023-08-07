@@ -12,7 +12,8 @@ So geht nun hin und macht zu Jüngern alle Völker,
 und tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes und lehrt sie alles halten,
 was ich euch befohlen habe. Und siehe, ich bin bei euch alle Tage bis an das Ende der Weltzeit!  
 Amen.  
-(Matthäus 28,18b-20)
+
+Matthäus 28,18b-20
 
 **Doch wie definieren wir eigentlich alle Völker und wie weit sind wir bis heute gekommen?**
 
