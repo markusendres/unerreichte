@@ -14,7 +14,7 @@ was ich euch befohlen habe. Und siehe, ich bin bei euch alle Tage bis an das End
 Amen.  
 (Matthäus 28,18b-20)
 
-***Doch wie definieren wir eigentlich alle Völker und wie weit sind wir bis heute gekommen?***
+**Doch wie definieren wir eigentlich alle Völker und wie weit sind wir bis heute gekommen?**
 
 Manchmal hört man die Bemerkung: "Sicherlich hat inzwischen fast jeder von Jesus gehört. 
 Sicherlich sind in jedes Land Missionare gesandt worden. Haben wir den Missionsbefehl nicht so gut wie erfüllt?"
