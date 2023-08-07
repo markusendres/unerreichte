@@ -27,7 +27,7 @@ Das Evangelium ist zwar in jedes politische Land der Welt gelangt, aber als Jesu
 Viele von ihnen, wie z. B. die Vereinigten Staaten, existierten noch gar nicht, als Jesus diesen Befehl erteilte.
 Das Wort, das im griechischen Orginaltext für Nationen steht, ist "ethne", woraus sich das deutsche Wort "Ethnie" ableitet. 
 "Ethne" bezeichnet Nicht-Juden beziehungsweise eine Ansammlung von Individuen mit einer gemeinsamen Identität.
-Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org/articles/unreached-peoples#Exposition">hier</a> (englischsprachiger Artikel). 
+Eine gute Studie zu diesem Thema finden Sie <a href="https://www.desiringgod.org/articles/unreached-peoples#Exposition">hier</a> (englischsprachiger Artikel).  
 Im Missionsbefehl hat Jesus seinen Nachfolgern befohlen, alle ethnischen Gruppen zu Jüngern zu machen.
 Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehls betrachtet.
 
