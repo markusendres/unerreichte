@@ -21,5 +21,5 @@ Die App kann hier bezogen werden:
 # Gebetsmails, Zeitschriften und Gebetsnachrichten
 Einige Missionswerke bieten Informationen an. Diese konkreten Informationen und Anliegen helfen zum beten.
 
-* <a href="https://ethnos360.de/nachrichten/">Nachrichten von Ethnos360</a> - Zeitschrift 'Gehet hin' (4 mal pro Jahr) und Gebetsanliegen per E-Mail
+* <a href="https://ethnos360.de/nachrichten/">Nachrichten von Ethnos360</a> - Zeitschrift 'Gehet hin' (4 mal pro Jahr) und Gebetsanliegen per E-Mail (i.d.R. einmal pro Monat)
 
