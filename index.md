@@ -13,7 +13,7 @@ und tauft sie auf den Namen des Vaters und des Sohnes und des Heiligen Geistes 
 was ich euch befohlen habe.  
 Und siehe, ich bin bei euch alle Tage bis an das Ende der Weltzeit! Amen.  
 
-<em>Matthäus 28,18b-20</em>
+Matthäus 28,18b-20  
 
 **Doch wie definieren wir eigentlich alle Völker und wie weit sind wir bis heute gekommen?**
 
@@ -37,7 +37,7 @@ Das macht einen dramatischen Unterschied, wenn man den Umfang des Missionsbefehl
 
 > "Für die Zwecke der Evangelisation ist eine Volksgruppe die größte Gruppe, in der sich das Evangelium als Gemeindegründungsbewegung ausbreiten kann, ohne auf Verständnis- oder Akzeptanzbarrieren zu stoßen."
 
-<em>Quelle: Tagung des Lausanner Komitees 1982 in Chicago</em>
+Quelle: Tagung des Lausanner Komitees 1982 in Chicago  
 
 In den meisten Teilen der Welt stellt die Sprachbarriere das Haupthindernis für die Verbreitung des Evangeliums dar.
 Daher ist es angebracht, Volksgruppen in erster Linie nach der Sprache zu definieren, 
