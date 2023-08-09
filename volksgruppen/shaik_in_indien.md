@@ -6,7 +6,7 @@ permalink: /volksgruppen/shaik_in_indien
 
 Bevölkerung: 72.220.000  
 Hauptsprache: Urdu  
-Größte Religion: Islam (100%)
+Größte Religion: Islam (100%)  
 Christen: 0,00%  
 Evangelikale: Unbekannt  
 Bibelübersetzung: vollständig vorhanden  
