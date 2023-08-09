@@ -32,6 +32,18 @@ Die Shaikhs heiraten innerhalb ihrer Gruppe. Die Familien arrangieren die Ehesch
 Die Heirat mit einer Ehefrau ist die Norm, aber ein Mann kann mehrere Frauen heiraten, wenn er es sich leisten kann.
 Die Söhne erben den Besitz. Als Muslime werden sie kein Schweinefleisch essen.
 
+**Was glauben sie?**  
+Die Shaikhs bekennen sich zum Islam und haben sowohl sunnitische als auch schiitische Traditionen unter sich.
+Beide Gruppen versuchen, die Lehren des Korans und des Propheten Mohammad zu befolgen. 
+Sie glauben, dass sie, wenn sie die Fünf Säulen des Islam befolgen, nach ihrem Tod in den Himmel kommen werden.
+Allah, der oberste Gott des Universums, bestimmt jedoch, wer ins Paradies kommt.
+Sunniten beten fünfmal am Tag mit Blick auf Mekka.
+Sie fasten im Monat Ramadan. Freitags besuchen sie die Gottesdienste in der Moschee.
+Wenn ein Muslim die Mittel hat, pilgert er oder sie einmal im Leben nach Mekka.
+Muslimen ist es außerdem verboten, Alkohol zu trinken, Schweinefleisch zu essen, zu spielen, zu stehlen, zu betrügen, zu verleumden und Götzen zu bauen.
+Die beiden wichtigsten Feiertage für sunnitische Muslime sind Eid al Fitr, das monatliche Fastenbrechen, und Eid al Adha, das Fest der Bereitschaft Abrahams, seinen Sohn Allah zu opfern.
+
+
 **Was sind ihre Bedürfnisse ?**  
 Unter den Shaikh in Indien hat es viele missionarische Bemühungen gegeben.
 Leider haben diese Bemühungen nur wenige Shaikh in Gottes Reich gebracht.
