@@ -17,6 +17,9 @@ Die Webseite ist hier zu finden:
 Die App kann hier bezogen werden:
 [Unerreichte des Tages App](https://unreachedoftheday.org/resources/mobile-app/)
 
+# Gebetsleitfäden
+Wir haben einige Gebetsleitfäden zusammengestellt um dich beim Gebet zu unterstützen - siehe [Gebetsleitfäden](/gebetsleitfaden)
+
 # Gebetsmails, Zeitschriften und Gebetsnachrichten
 Einige Missionswerke bieten Informationen an. Diese konkreten Informationen und Anliegen helfen zum Beten.
 
