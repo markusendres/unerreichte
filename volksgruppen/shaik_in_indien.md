@@ -8,6 +8,7 @@ Bevölkerung: 72.220.000
 Hauptsprache: Urdu
 
 **Hintergrund / Geschichte**  
+
 Der Begriff Shaikh wird für eine soziokulturelle Gruppe verwendet, 
 die ihren Ursprung in arabischen Siedlern in Südasien hat und heute viele Untergruppen umfasst. 
 Der Islam kam im Jahr 711 n. Chr. in das Gebiet, das heute als Pakistan bekannt ist, als eine muslimische arabische Armee den nordwestlichen Teil des Indus-Tals von Jammu und Kaschmir bis zum Arabischen Meer eroberte. 
