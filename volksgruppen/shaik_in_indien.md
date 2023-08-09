@@ -22,4 +22,14 @@ Einige wenige Familien bewirtschaften jedoch in den westlichen Bezirken des Punj
 Ihnen wird oft ein stereotyper Ruf als Geschäftsleute nachgesagt. Die Hauptsprache der Shaikh ist Urdu. 
 Sie sprechen auch die lokalen Sprachen der Gebiete, in denen sie leben.
 
-Übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN">Joshua Project</a>
+**Wie sieht ihr Alltag aus?**
+Die große südasiatische Kaste der Shaikhs ist nicht an einen bestimmten Beruf gebunden. Die Shaikh lassen sich grob in fünf Gemeinschaften einteilen.
+Die Mehrheit der Punjabi Shaikhs ist verstädtert und hat sich von ihrer traditionellen landwirtschaftlichen Herkunft gelöst.
+Einige wenige Familien bewirtschaften jedoch in den westlichen Bezirken des Punjab noch ihr eigenes Land.
+Die Hauptberufe der städtischen Punjabi Shaikhs sind die Wirtschaft und der öffentliche Dienst.
+Sie werden oft wegen ihres Geschäftssinns stereotypisiert. Häufige Nachnamen sind Mondal, Siddiqui, Usmani, Faroqui und Sheikh.
+Die Shaikhs heiraten innerhalb ihrer Gruppe. Die Familien arrangieren die Eheschließungen.
+Die Heirat mit einer Ehefrau ist die Norm, aber ein Mann kann mehrere Frauen heiraten, wenn er es sich leisten kann.
+Die Söhne erben den Besitz. Als Muslime werden sie kein Schweinefleisch essen.
+
+Informationen übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN">Joshua Project</a>
