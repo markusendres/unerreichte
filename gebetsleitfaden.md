@@ -1,7 +1,7 @@
 ---
 layout: page
 title: Gebetsleitfäden
-permalink: /Gebetsleitfaden/
+permalink: /gebetsleitfaden/
 ---
 Hier findest du einige Zusammenstellungen von Gebetsleitfäden:
 
