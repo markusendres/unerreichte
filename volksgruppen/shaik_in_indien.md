@@ -4,8 +4,8 @@ title: Shaik in Indien
 permalink: /volksgruppen/shaik_in_indien
 ---
 
-Bevölkerung: 72.220.000
-Hauptsprache: Urdu
+Bevölkerung: 72.220.000  
+Hauptsprache: Urdu  
 
 **Hintergrund / Geschichte**  
 
