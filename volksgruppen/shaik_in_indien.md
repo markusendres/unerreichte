@@ -33,7 +33,7 @@ Die Heirat mit einer Ehefrau ist die Norm, aber ein Mann kann mehrere Frauen hei
 Die Söhne erben den Besitz. Als Muslime werden sie kein Schweinefleisch essen.
 
 **Was sind ihre Bedürfnisse ?**  
-Unter den Shaikh in Indien hat es viele Dienstaktivitäten gegeben.
+Unter den Shaikh in Indien hat es viele missionarische Bemühungen gegeben.
 Leider haben diese Bemühungen nur wenige Shaikh in Gottes Reich gebracht.
 Shaikhs, die in ländlichen Dörfern leben, haben oft keinen Zugang zu moderner Medizin, Strom und sauberem Wasser.
 Teams von Gläubigen können helfen, diese Bedürfnisse zu erfüllen.
