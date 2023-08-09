@@ -19,7 +19,7 @@ Matthäus 28,18b-20
 
 Manchmal hört man die Bemerkung: "Sicherlich hat inzwischen fast jeder von Jesus gehört. 
 Sicherlich sind in jedes Land Missionare gesandt worden. Haben wir den Missionsbefehl nicht so gut wie erfüllt?"
-Obwohl die Verbreitung des chrislichen Glaubens geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
+Obwohl die Verbreitung des christlichen Glaubens geradezu übernatürlich ist, gibt es immer noch große Teile der Weltbevölkerung, die noch nie den Namen Jesus gehört haben, geschweige denn eine klare Darstellung der Heilsbotschaft.  
 
 <b>Sind mit "alle Völker" Länder oder Nationen gemeint?</b>
 
