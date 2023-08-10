@@ -2,7 +2,6 @@
 layout: page
 title: Beten
 permalink: /beten/
-order: 2
 ---
 
 Das Gebet ist eine mächtige Waffe!
@@ -18,7 +17,7 @@ Die App kann hier bezogen werden:
 [Unerreichte des Tages App](https://unreachedoftheday.org/resources/mobile-app/)
 
 # Gebetsleitfäden
-Wir haben einige Gebetsleitfäden zusammengestellt um dich beim Gebet zu unterstützen - siehe [Gebetsleitfäden](/gebetsleitfaden)
+Wir haben Gebetsleitfäden zusammengestellt um dir gezielt Informationen für das Gebet bereit zu stellen. Siehe [Gebetsleitfäden](/gebetsleitfaden)
 
 # Gebetsmails, Zeitschriften und Gebetsnachrichten
 Einige Missionswerke bieten Informationen an. Diese konkreten Informationen und Anliegen helfen zum Beten.
