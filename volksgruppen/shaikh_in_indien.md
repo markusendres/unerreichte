@@ -1,7 +1,7 @@
 ---
 layout: page
-title: Shaik in Indien
-permalink: /volksgruppen/shaik_in_indien
+title: Shaikh in Indien
+permalink: /volksgruppen/shaikh_in_indien
 ---
 
 Bevölkerung: 72.220.000  
