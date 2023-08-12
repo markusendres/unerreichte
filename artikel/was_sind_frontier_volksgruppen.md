@@ -8,7 +8,7 @@ Gott versprach Abraham (Abram), dass Gott durch Abrahams Nachkommen alle Familie
 Heute stärkt das Wort Gottes ganze Familien und heilt zerbrochene Familien in vielen Teilen der Welt. 
 Dennoch gibt es nach wie vor große Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist, "so weit der Fluch reicht".
 
-**Unerreichten Volksgruppen**  
+**Unerreichte Volksgruppen**  
 Vor fast vierzig Jahren wurde das Konzept der unerreichten Volksgruppen eingeführt, um den Gruppen Priorität einzuräumen, denen es an Bewegungen fehlt, 
 die Gottes Gegenwart und Segen in ihrer Mitte verbreiten. 
 Forscher entschieden sich, weniger als 2 % (eine von 50) der Familien in einer Gruppe, die sich der Gegenwart Gottes erfreuen, als messbaren Beweis dafür zu betrachten, 
