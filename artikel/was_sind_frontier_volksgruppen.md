@@ -36,4 +36,4 @@ Die gute Nachricht ist, dass Bewegungen weit weniger finanzielle Mittel und miss
 
 Die 24:14-Koalition ermöglicht nun ein globales Netzwerk von erfahrenen Bewegungsleitern und Katalysatoren, die zusammenarbeiten, um die Bewegungen in jeder 'Frontier Volksgruppe' schnell zu vervielfachen - mit dem gemeinsamen Ziel, dass bis Ende 2025 in jedem unerreichten Volk und an jedem unerreichten Ort die Arbeit zumindest begonnen wird.
 
-Der großteil des Textes wurde frei übersetzt aus <a href="https://joshuaproject.net/resources/articles/frontier_peoples_intro">Joshua Project</a>
+Der Großteil des Textes wurde frei übersetzt aus <a href="https://joshuaproject.net/resources/articles/frontier_peoples_intro">Joshua Project</a>
