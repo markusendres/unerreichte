@@ -8,7 +8,7 @@ Gott versprach Abraham (Abram), dass Gott durch Abrahams Nachkommen alle Familie
 Heute stärkt das Wort Gottes ganze Familien und heilt zerbrochene Familien in vielen Teilen der Welt. 
 Dennoch gibt es nach wie vor große Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist, "so weit der Fluch reicht".
 
-**Unerreichten Volksgruppen**
+**Unerreichten Volksgruppen**  
 Vor fast vierzig Jahren wurde das Konzept der unerreichten Volksgruppen eingeführt, um den Gruppen Priorität einzuräumen, denen es an Bewegungen fehlt, 
 die Gottes Gegenwart und Segen in ihrer Mitte verbreiten. 
 Forscher entschieden sich, weniger als 2 % (eine von 50) der Familien in einer Gruppe, die sich der Gegenwart Gottes erfreuen, als messbaren Beweis dafür zu betrachten, 
@@ -19,7 +19,7 @@ Das Konzept der unerreichten Volksgruppen wurde eingeführt, um Gruppen, denen e
 Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Und durch die beharrlichen Bemühungen von Finishing the Task geht die Zahl der unerreichten Gruppen, 
 unter denen überhaupt nicht gearbeitet wird, stetig zurück. 
 
-**'Frontier' Volksgruppen**
+**'Frontier' Volksgruppen**  
 Darüber hinaus haben Forscher erkannt, dass ein einziger Funke ein Feuer entfachen kann, 
 und dass die Bibel überall dort, wo sie von einem Volk angenommen wird und sogar eine kleine Anhängerschaft hat, 
 ein Feuer entfachen kann, das diese Gemeinschaft, ihre Familien und ihre gesamte Volksgruppe segnet.
@@ -31,7 +31,7 @@ Bei den 'Frontier Volksgruppen' ist die regelmäßige Evangelisierung von Einzel
 dass die Christenheit ihre Familien und Gemeinschaften zerstören will. In diesem Zusammenhang müssen wir viele sich vervielfältigende Bewegungen von kleinen,
 sich vervielfältigenden Gemeinden und Jüngern anstreben.
 
-**Bemühungen um die 'Frontier' Volksgruppen**
+**Bemühungen um die 'Frontier' Volksgruppen**  
 Die gute Nachricht ist, dass Bewegungen weit weniger finanzielle Mittel und missionarische Präsenz erfordern als reguläre Evangelisation, aber eine weitaus größere Wirkung haben. Ein einziges Team kann eine Bewegung ins Leben rufen, die eine Bevölkerung von 500.000 oder mehr Menschen segnen kann. Und allein seit 1995 haben sich die Bewegungen von einer Handvoll mit ein paar tausend Jüngern auf mehr als 650 Bewegungen mit 50 Millionen Jüngern in sich schnell vervielfältigenden Familiengemeinden vervielfacht.
 
 Die 24:14-Koalition ermöglicht nun ein globales Netzwerk von erfahrenen Bewegungsleitern und Katalysatoren, die zusammenarbeiten, um die Bewegungen in jeder 'Frontier Volksgruppe' schnell zu vervielfachen - mit dem gemeinsamen Ziel, dass bis Ende 2025 in jedem unerreichten Volk und an jedem unerreichten Ort die Arbeit zumindest begonnen wird.
