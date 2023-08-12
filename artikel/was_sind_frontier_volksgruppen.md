@@ -8,6 +8,7 @@ Gott versprach Abraham (Abram), dass Gott durch Abrahams Nachkommen alle Familie
 Heute stärkt das Wort Gottes ganze Familien und heilt zerbrochene Familien in vielen Teilen der Welt. 
 Dennoch gibt es nach wie vor große Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist, "so weit der Fluch reicht".
 
+**Unerreichten Völker**
 Vor fast vierzig Jahren wurde das Konzept der unerreichten Völker eingeführt, um den Gruppen Priorität einzuräumen, denen es an Bewegungen fehlt, 
 die Gottes Gegenwart und Segen in ihrer Mitte verbreiten. 
 Forscher entschieden sich, weniger als 2 % (eine von 50) der Familien in einer Gruppe, die sich der Gegenwart Gottes erfreuen, als messbaren Beweis dafür zu betrachten, 
@@ -35,3 +36,5 @@ Forscher gehen von über 4.000 'Frontier Volksgruppen' aus, die weniger als oder
 Die gute Nachricht ist, dass Bewegungen weit weniger finanzielle Mittel und missionarische Präsenz erfordern als reguläre Evangelisation, aber eine weitaus größere Wirkung haben. Ein einziges Team kann eine Bewegung ins Leben rufen, die eine Bevölkerung von 500.000 oder mehr Menschen segnen kann. Und allein seit 1995 haben sich die Bewegungen von einer Handvoll mit ein paar tausend Jüngern auf mehr als 650 Bewegungen mit 50 Millionen Jüngern in sich schnell vervielfältigenden Familiengemeinden vervielfacht.
 
 Die 24:14-Koalition ermöglicht nun ein globales Netzwerk von erfahrenen Bewegungsleitern und Katalysatoren, die zusammenarbeiten, um die Bewegungen in jedem Grenzlandvolk schnell zu vervielfachen - mit dem gemeinsamen Ziel, dass bis Ende 2025 in jedem unerreichten Volk und an jedem unerreichten Ort die Arbeit zumindest begonnen wird.
+
+Frei übersetzt und ergänzt aus <a href="https://joshuaproject.net/resources/articles/frontier_peoples_intro">Joshua Project</a>
