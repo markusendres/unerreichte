@@ -5,11 +5,11 @@ permalink: /volksgruppen/shaikh_in_indien
 ---
 
 Bevölkerung: 72.220.000  
-Hauptsprache: Urdu  
+Hauptsprache: Urdu (Indien)
 Größte Religion: Islam (100%)  
 Christen: 0,00%  
 Evangelikale: Unbekannt  
-Bibelübersetzung: vollständig vorhanden  
+Bibelübersetzung: vollständig vorhanden (Urdu )
 
 **Hintergrund / Geschichte**  
 
@@ -57,7 +57,8 @@ Teams von Gläubigen können helfen, diese Bedürfnisse zu erfüllen.
 
 **Wie kann man für die Shaikh in Indien beten? (Gebet für die ganze Volksgruppe)**
 * Bitte GOTT, dass ER mehr Boten sendet, die die Botschaft klar und deutlich erklären.
-* In der bengalischen Sprache gibt es die Bibel, Radioprogramme, Audioaufnahmen, Videos und Bücher, so dass die bengalisch sprechenden Shaikh das Evangelium hören und lesen könnten. Aber es muss zu ihnen gebracht werden. Es werden dringend Arbeiter gebraucht, die diesen Menschen das Wort Gottes nahe bringen. Der Name des Volkes, Shaikh, bedeutet, dass sie weise Männer sind.
+* In der bengalischen Sprache und Urdu gibt es die Bibel, Radioprogramme, Audioaufnahmen, Videos und Bücher, so dass die bengalisch sprechenden Shaikh das Evangelium hören und lesen könnten. 
+Aber es muss zu ihnen gebracht werden. Es werden dringend Arbeiter gebraucht, die diesen Menschen das Wort Gottes nahe bringen. Der Name des Volkes, Shaikh, bedeutet, dass sie weise Männer sind.
 
 **Quellen** 
 * Informationen größtenteils übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN" target="_blank">Joshua Project</a>
