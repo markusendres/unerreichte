@@ -11,7 +11,7 @@ Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Kon
 **Unerreichte Volksgruppen**  
 Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten Volksgruppen eingeführt, um den unerreichten Volksgruppen mehr Priorität einzuräumen. Als "unerreicht" gelten Volksgruppen, die weniger als 2 % (eine von 50) christusgläubige Familien aufweisen. Dadurch mangelt es ihnen an der Kapazität, das Evangelium in der eigenen Volksgruppe selbst ausreichend weiterzugeben. Somit bedarf es in dieser Volksgruppe der missionarischen Pionierarbeit, um eine sich vervielfachende Bewegung durch Gottes Geist in Gang zu setzen.
 
-Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch beharrliche Bemühungen geht die Zahl der unerreichten Gruppen, unter denen bisher überhaupt nicht gearbeitet worden war, stetig zurück. 
+Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch beharrliche Bemühungen geht die Zahl der unerreichten Volksgruppen, unter denen noch nicht gearbeitet wird, stetig zurück. 
 
 **'Frontier' Volksgruppen**  
 Darüber hinaus haben Forscher erkannt, dass ein einziger Funke ein Feuer entfachen kann, 
