@@ -22,8 +22,7 @@ Sie sind eine Untergruppe der Zamindar-Gruppe, die traditionell mit der Landwirt
 die die Punjabis bilden.
 Shaikh ist auch ein Begriff, der gewöhnlich den Führern oder Ältesten arabischer sozialer Gruppen zugeschrieben wird.  
 Nach dem Aufkommen des Islam in Südasien konvertierten einige Angehörige hoher Kasten (Brahmanen, muslimische Rajputen und Khatris) in der Region Punjab zum Islam und nahmen den Titel Shaikh an.
-Sie sind als Punjabi Shaikh bekannt. Die Mehrheit der Punjabi Shaikhs ist urbanisiert und hat sich von ihrer traditionellen landwirtschaftlichen Herkunft gelöst.
-Einige wenige Familien bewirtschaften jedoch in den westlichen Bezirken des Punjab noch ihr eigenes Land. Die Hauptberufe der städtischen Punjabi Shaikhs sind die Wirtschaft und der öffentliche Dienst. 
+Sie sind als Punjabi Shaikh bekannt.
 Ihnen wird oft ein stereotyper Ruf als Geschäftsleute nachgesagt.  
 Die Hauptsprache der Shaikh in Indien ist Urdu. Sie sprechen auch die lokalen Sprachen der Gebiete, in denen sie leben.
 
@@ -32,7 +31,7 @@ Die große südasiatische Kaste der Shaikhs ist nicht an einen bestimmten Beruf 
 Die Mehrheit der Punjabi Shaikhs ist verstädtert und hat sich von ihrer traditionellen landwirtschaftlichen Herkunft gelöst.
 Einige wenige Familien bewirtschaften jedoch in den westlichen Bezirken des Punjab noch ihr eigenes Land.
 Die Hauptberufe der städtischen Punjabi Shaikhs sind die Wirtschaft und der öffentliche Dienst.
-Sie werden oft wegen ihres Geschäftssinns stereotypisiert. Häufige Nachnamen sind Mondal, Siddiqui, Usmani, Faroqui und Sheikh.
+Häufige Nachnamen sind Mondal, Siddiqui, Usmani, Faroqui und Sheikh.
 Die Shaikhs heiraten innerhalb ihrer Gruppe. Die Familien arrangieren die Eheschließungen.
 Die Heirat mit einer Ehefrau ist die Norm, aber ein Mann kann mehrere Frauen heiraten, wenn er es sich leisten kann.
 Die Söhne erben den Besitz. Als Muslime werden sie kein Schweinefleisch essen.
