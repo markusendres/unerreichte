@@ -5,11 +5,11 @@ permalink: /volksgruppen/shaikh_in_indien
 ---
 
 Bevölkerung: 72.220.000  
-Hauptsprache: Urdu (Indien)
+Hauptsprache: Urdu (Indien)  
 Größte Religion: Islam (100%)  
 Christen: 0,00%  
 Evangelikale: Unbekannt  
-Bibelübersetzung: vollständig vorhanden (Urdu )
+Bibelübersetzung: vollständig vorhanden (Urdu)  
 
 **Hintergrund / Geschichte**  
 
