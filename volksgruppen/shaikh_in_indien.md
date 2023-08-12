@@ -30,7 +30,7 @@ Die Hauptsprache der Shaikh in Indien ist Urdu. Sie sprechen auch die lokalen Sp
 Die große südasiatische Kaste der Shaikhs ist nicht an einen bestimmten Beruf gebunden. Die Shaikh lassen sich grob in fünf Gemeinschaften einteilen.
 Die Mehrheit der Punjabi Shaikhs ist verstädtert und hat sich von ihrer traditionellen landwirtschaftlichen Herkunft gelöst.
 Einige wenige Familien bewirtschaften jedoch in den westlichen Bezirken des Punjab noch ihr eigenes Land.
-Die Hauptberufe der städtischen Punjabi Shaikhs sind die Wirtschaft und der öffentliche Dienst.
+Die Hauptberufsfelder der städtischen Punjabi Shaikhs befinden sich in der Wirtschaft und im öffentlichen Dienst.
 Häufige Nachnamen sind Mondal, Siddiqui, Usmani, Faroqui und Sheikh.
 Die Shaikhs heiraten innerhalb ihrer Gruppe. Die Familien arrangieren die Eheschließungen.
 Die Heirat mit einer Ehefrau ist die Norm, aber ein Mann kann mehrere Frauen heiraten, wenn er es sich leisten kann.
