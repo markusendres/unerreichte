@@ -9,7 +9,7 @@ Heute stärkt das Wort Gottes ganze Familien und heilt zerbrochene Familien in v
 Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist.
 
 **Unerreichte Volksgruppen**  
-Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten Volksgruppen eingeführt um den unerreichten Volksgruppen mehr Priorität einzuräumen. Als 'unerreicht' gelten Volksgruppen, die weniger als 2 % (eine von 50) an christusgläubigen Familien aufweisen. Dadurch mangelt es an der Kapazität das Evangelium selbst in der eigenen Volksgruppe ausreichend weiterzugeben und Bedarf somit der missionarischen Pionierarbeit, um eine sich vervielfachende Bewegung durch Gottes Geist in Gang zu setzen.
+Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten Volksgruppen eingeführt, um den unerreichten Volksgruppen mehr Priorität einzuräumen. Als "unerreicht" gelten Volksgruppen, die weniger als 2 % (eine von 50) an christusgläubigen Familien aufweisen. Dadurch mangelt es an der Kapazität das Evangelium selbst in der eigenen Volksgruppe ausreichend weiterzugeben und Bedarf somit der missionarischen Pionierarbeit, um eine sich vervielfachende Bewegung durch Gottes Geist in Gang zu setzen.
 
 Das Konzept der unerreichten Volksgruppen wurde eingeführt, um Gruppen, denen es an Bewegungen mangelt, Priorität einzuräumen.
 
