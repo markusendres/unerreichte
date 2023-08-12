@@ -55,4 +55,7 @@ Shaikhs, die in ländlichen Dörfern leben, haben oft keinen Zugang zu moderner 
 Teams von Gläubigen können helfen, diese Bedürfnisse zu erfüllen.
 
 
-Informationen übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN">Joshua Project</a>
+Informationen übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN" target="_blank">Joshua Project</a>
+
+**Links**  
+<a href="https://de.etnopedia.org/wiki/index.php/Shaikh" target="_blank">Shaikh-Volksgruppe auf Etnopedia</a>
