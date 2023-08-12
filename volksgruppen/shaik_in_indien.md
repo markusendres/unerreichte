@@ -47,19 +47,20 @@ Wenn ein Muslim die Mittel hat, pilgert er oder sie einmal im Leben nach Mekka.
 Muslimen ist es außerdem verboten, Alkohol zu trinken, Schweinefleisch zu essen, zu spielen, zu stehlen, zu betrügen, zu verleumden und Götzen zu bauen.
 Die beiden wichtigsten Feiertage für sunnitische Muslime sind Eid al Fitr, das monatliche Fastenbrechen, und Eid al Adha, das Fest der Bereitschaft Abrahams, seinen Sohn Allah zu opfern.
 
+[comment]: <> (**Hindernisse für die Erreichung der Volksgruppe**)
 
-**Was sind ihre Bedürfnisse ?**  
+**Was sind ihre Bedürfnisse / Wie kann man sie erreichen ?**  
 Unter den Shaikh in Indien hat es viele missionarische Bemühungen gegeben.
 Leider haben diese Bemühungen nur wenige Shaikh in Gottes Reich gebracht.
 Shaikhs, die in ländlichen Dörfern leben, haben oft keinen Zugang zu moderner Medizin, Strom und sauberem Wasser.
 Teams von Gläubigen können helfen, diese Bedürfnisse zu erfüllen.
 
-**Wie kann man für die Shaikh in Indien beten?**
+**Wie kann man für die Shaikh in Indien beten? (Gebet für die ganze Volksgruppe)**
 * Bitte GOTT, dass ER mehr Boten sendet, die die Botschaft klar und deutlich erklären.
 * In der bengalischen Sprache gibt es die Bibel, Radioprogramme, Audioaufnahmen, Videos und Bücher, so dass die bengalisch sprechenden Shaikh das Evangelium hören und lesen könnten. Aber es muss zu ihnen gebracht werden. Es werden dringend Arbeiter gebraucht, die diesen Menschen das Wort Gottes nahe bringen. Der Name des Volkes, Shaikh, bedeutet, dass sie weise Männer sind.
 
 **Quellen** 
-* Informationen übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN" target="_blank">Joshua Project</a>
+* Informationen größtenteils übersetzt aus <a href="https://joshuaproject.net/people_groups/18084/IN" target="_blank">Joshua Project</a>
 * Gebetsanliegen zum Teil übernommen aus <a href="https://de.etnopedia.org/wiki/index.php/Shaikh" target="_blank">Etnopedia</a>
 
 **Links**  
