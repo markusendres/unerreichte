@@ -5,4 +5,4 @@ permalink: /gebetsleitfaden/
 ---
 
 
-* [Die 35 größten Unerreichten (Frontier) Volksgrupen](/Gebetsleitfaden/35)
+* [Die 31 größten Unerreichten (Frontier) Volksgrupen](/gebetsleitfaden/31)
