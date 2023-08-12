@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Was sind Frontier Volksgruppen
+title: Was sind 'Frontier' Volksgruppen?
 permalink: /artikel/frontier_volksgruppen
 ---
 
