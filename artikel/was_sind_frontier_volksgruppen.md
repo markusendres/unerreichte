@@ -6,7 +6,7 @@ permalink: /artikel/frontier_volksgruppen
 
 Gott versprach Abraham (Abram), dass er durch Abrahams Nachkommen alle Familien der Erde segnen würde. 
 Heute stärkt Wort Gottes und heilt das Wort Gottes ganze Familien in vielen Teilen der Welt. 
-Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist.
+Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen das Evangelium von Jesus Christus noch nicht bekannt ist.
 
 **Unerreichte Volksgruppen**  
 Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten Volksgruppen eingeführt, um den unerreichten Volksgruppen mehr Priorität einzuräumen. Als "unerreicht" gelten Volksgruppen, die weniger als 2 % (eine von 50) christusgläubige Familien aufweisen. Dadurch mangelt es ihnen an der Kapazität, das Evangelium in der eigenen Volksgruppe selbst ausreichend weiterzugeben. Somit bedarf es in dieser Volksgruppe der missionarischen Pionierarbeit, um eine sich vervielfachende Bewegung durch Gottes Geist in Gang zu setzen.
