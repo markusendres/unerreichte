@@ -16,14 +16,14 @@ Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch
 **'Frontier'-Volksgruppen**  
 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
 
+Bei den 'Frontier'-Volksgruppen ist die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) ist daher kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
+dass die fremden Christen ihre Familien und Gemeinschaften zerstören wollen. In diesem Zusammenhang müssen wir viele sich vervielfältigende Bewegungen von kleinen,
+sich vervielfältigenden Gemeinden und Jüngern anstreben.
+
 Forscher haben erkannt, dass überall dort, wo Gottes Botschaft angenommen wird und sich eine kleine Anhängerschaft bildet, ein Feuer entfacht werden kann, 
 dessen Segen die gesamte Volksgruppe erreicht.
 
 Forscher haben daher damit begonnen, mehr als 4.000 'Frontier'-Volksgruppen in den Blick zu nehmen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
-
-Bei den 'Frontier'-Volksgruppen ist die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
-dass die Christenheit ihre Familien und Gemeinschaften zerstören will. In diesem Zusammenhang müssen wir viele sich vervielfältigende Bewegungen von kleinen,
-sich vervielfältigenden Gemeinden und Jüngern anstreben.
 
 **Bemühungen um die 'Frontier'-Volksgruppen**  
 Die gute Nachricht ist, dass Bewegungen weit weniger finanzielle Mittel und missionarische Präsenz erfordern als reguläre Evangelisation, aber eine weitaus größere Wirkung haben. Ein einziges Team kann eine Bewegung ins Leben rufen, die eine Bevölkerung von 500.000 oder mehr Menschen segnen kann. Und allein seit 1995 haben sich die Bewegungen von einer Handvoll mit ein paar tausend Jüngern auf mehr als 650 Bewegungen mit 50 Millionen Jüngern in sich schnell vervielfältigenden Familiengemeinden vervielfacht.
