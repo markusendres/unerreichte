@@ -22,4 +22,4 @@ dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen.
 
 In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz darin bestehen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
 
-Der Großteil des Textes wurde frei übersetzt aus <a href="https://joshuaproject.net/resources/articles/frontier_peoples_intro">Joshua Project</a>
+Der Text wurde gekürzt und frei übersetzt aus <a href="https://joshuaproject.net/resources/articles/frontier_peoples_intro">Joshua Project</a>
