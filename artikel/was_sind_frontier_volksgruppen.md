@@ -15,7 +15,6 @@ Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch
 
 **'Frontier'-Volksgruppen**  
 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
-
 Die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) ist daher kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
 dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen. 
 
