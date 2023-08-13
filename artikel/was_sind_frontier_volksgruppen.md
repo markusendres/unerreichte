@@ -18,7 +18,7 @@ Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch
 Die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) ist daher kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
 dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen. 
 
-In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz den Schwerpunkt darauf legen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
+In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz darin bestehen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
 
 Forscher haben erkannt, dass überall dort, wo Gottes Botschaft angenommen wird und sich eine kleine Anhängerschaft bildet, ein Feuer entfacht werden kann, 
 dessen Segen die gesamte Volksgruppe erreicht.
