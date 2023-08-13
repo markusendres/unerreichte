@@ -19,7 +19,7 @@ und dass die Bibel überall dort, wo sie von einem Volk angenommen wird und soga
 ein Feuer entfachen kann, das diese Gemeinschaft, ihre Familien und ihre gesamte Volksgruppe segnet.
 
 Forscher haben daher damit begonnen, mehr als 4.000 'Frontier'-Volksgruppen in den Blick zu nehmen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
-Solche 'Frontier Volksgruppen' sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die Einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
+Solche 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die Einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
 
 Bei den 'Frontier'-Volksgruppen ist die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
 dass die Christenheit ihre Familien und Gemeinschaften zerstören will. In diesem Zusammenhang müssen wir viele sich vervielfältigende Bewegungen von kleinen,
