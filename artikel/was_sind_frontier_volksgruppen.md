@@ -5,7 +5,7 @@ permalink: /artikel/frontier_volksgruppen
 ---
 
 Gott versprach Abraham (Abram), dass er durch Abrahams Nachkommen alle Familien der Erde segnen würde. 
-Heute stärkt Wort Gottes und heilt das Wort Gottes ganze Familien in vielen Teilen der Welt. 
+Heute stärkt und heilt das Wort Gottes ganze Familien in vielen Teilen der Welt. 
 Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen das Evangelium von Jesus Christus noch nicht bekannt ist.
 
 **Unerreichte Volksgruppen**  
