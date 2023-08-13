@@ -17,7 +17,7 @@ Die App kann hier bezogen werden:
 [Unerreichte des Tages App](https://unreachedoftheday.org/resources/mobile-app/)
 
 # Gebetsleitfaden
-Es gibt einen [Gebetsleitfaden für die 31 größten unerreichten 'Frontier' Volksgruppen](/gebetsleitfaden/31) der auf einer eigenen Seite zusammengestellt wurde, um gezielt Informationen für das Gebet zur Verfügung zu stellen.  
+Es gibt einen [Gebetsleitfaden für die 31 größten unerreichten 'Frontier' Volksgruppen](/gebetsleitfaden/31), der auf einer eigenen Seite zusammengestellt wurde, um gezielt Informationen für das Gebet zur Verfügung zu stellen.  
 
 # Gebetsmails, Zeitschriften und Gebetsnachrichten
 Einige Missionswerke bieten Informationen an. Diese konkreten Informationen und Anliegen helfen zum Beten.
