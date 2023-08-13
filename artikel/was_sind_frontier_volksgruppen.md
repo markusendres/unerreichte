@@ -4,8 +4,8 @@ title: Was sind 'Frontier'-Volksgruppen?
 permalink: /artikel/frontier_volksgruppen
 ---
 
-Gott versprach Abraham (Abram), dass Gott durch Abrahams Nachkommen alle Familien der Erde segnen würde. 
-Heute stärkt das Wort Gottes ganze Familien und heilt zerbrochene Familien in vielen Teilen der Welt. 
+Gott versprach Abraham (Abram), dass er durch Abrahams Nachkommen alle Familien der Erde segnen würde. 
+Heute stärkt Wort Gottes und heilt das Wort Gottes ganze Familien in vielen Teilen der Welt. 
 Dennoch gibt es nach wie vor weitläufige Gebiete mit großer Zerrissenheit, Konflikten, Armut und Leid, in denen Gottes Segen noch nicht bekannt ist.
 
 **Unerreichte Volksgruppen**  
