@@ -15,13 +15,12 @@ Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch
 
 **'Frontier'-Volksgruppen**  
 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
+Es gibt mehr als 4.000 Volksgruppen, auf die diese Beschreibung zutrifft. 
+In diesen 'Frontier'-Volksgruppen gehört fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus oder erkennt die Bibel als Gottes Wort an.  
 Die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) ist daher kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
 dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen. 
 
 In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz darin bestehen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
-
-Es gibt mehr als 4.000 Volksgruppen, auf die diese Beschreibung zutrifft. 
-In diesen 'Frontier'-Volksgruppen gehört fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus oder erkennt die Bibel als Gottes Wort an.
 
 **Bemühungen um die 'Frontier'-Volksgruppen**  
 Die gute Nachricht ist, dass Bewegungen weit weniger finanzielle Mittel und missionarische Präsenz erfordern als reguläre Evangelisation, aber eine weitaus größere Wirkung haben. Ein einziges Team kann eine Bewegung ins Leben rufen, die eine Bevölkerung von 500.000 oder mehr Menschen segnen kann. Und allein seit 1995 haben sich die Bewegungen von einer Handvoll mit ein paar tausend Jüngern auf mehr als 650 Bewegungen mit 50 Millionen Jüngern in sich schnell vervielfältigenden Familiengemeinden vervielfacht.
