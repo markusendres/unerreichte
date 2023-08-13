@@ -20,9 +20,6 @@ dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen.
 
 In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz darin bestehen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
 
-Forscher haben erkannt, dass überall dort, wo Gottes Botschaft angenommen wird und sich eine kleine Anhängerschaft bildet, ein Feuer entfacht werden kann, 
-dessen Segen die gesamte Volksgruppe erreicht.
-
 Forscher haben daher damit begonnen, mehr als 4.000 'Frontier'-Volksgruppen in den Blick zu nehmen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
 
 **Bemühungen um die 'Frontier'-Volksgruppen**  
