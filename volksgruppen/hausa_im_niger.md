@@ -4,8 +4,8 @@ title: Hausa im Niger
 permalink: /volksgruppen/hausa_im_niger
 ---
 
-Bevölkerung: 13.598.000
-Hauptsprache: Hausa
+Bevölkerung: 13.598.000  
+Hauptsprache: Hausa  
 Christen: 2,0 %  
 Evangelikale: 1,6 %  
 Bibelübersetzung: vollständig vorhanden (Hausa)  
