@@ -20,7 +20,7 @@ dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen.
 
 In diesen sehr stark auf Gemeinschaft fokussierten Volksgruppen sollte der Evangelisationsansatz darin bestehen, kleine Gruppierungen/Familien statt Einzelpersonen zu erreichen, die sich wiederum vervielfältigen können.
 
-Es gibt mehr als 4.000 Volksgruppen in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder oder die Bibel als Gottes Wort anerkennt.
+Es gibt mehr als 4.000 Volksgruppen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt.
 
 Forscher haben daher damit begonnen, mehr als 4.000 'Frontier'-Volksgruppen in den Blick zu nehmen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
 
