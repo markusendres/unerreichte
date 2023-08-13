@@ -14,9 +14,8 @@ Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten 
 Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch beharrliche Bemühungen geht die Zahl der unerreichten Volksgruppen, unter denen noch nicht gearbeitet wird, stetig zurück. 
 
 **'Frontier'-Volksgruppen**  
-Darüber hinaus haben Forscher erkannt, dass ein einziger Funke ein Feuer entfachen kann, 
-und dass die Bibel überall dort, wo sie von einem Volk angenommen wird und sogar eine kleine Anhängerschaft hat, 
-ein Feuer entfachen kann, das diese Gemeinschaft, ihre Familien und ihre gesamte Volksgruppe segnet.
+Forscher haben erkannt, dass überall dort, wo Gottes Botschaft angenommen wird und sich eine kleine Anhängerschaft bildet, ein Feuer entfacht werden kann 
+dessen Segen die gesamte Volksgruppe erreichen kann.
 
 Forscher haben daher damit begonnen, mehr als 4.000 'Frontier'-Volksgruppen in den Blick zu nehmen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
 Solche 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die Einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
