@@ -14,9 +14,9 @@ Vor fast vierzig Jahren wurde die Kategorisierung in erreichte und unerreichten 
 Heute schätzen Forscher die Zahl der unerreichten Gruppen auf etwa 7.400. Durch beharrliche Bemühungen geht die Zahl der unerreichten Volksgruppen, unter denen noch nicht gearbeitet wird, stetig zurück. 
 
 **'Frontier'-Volksgruppen**  
-Zu den 'Frontier'-Volksgruppen zählt man diejenigen Volksgruppen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
+Es gibt mehr als 4.000 sogenannte 'Frontier'-Volksgruppen.
+Dazu zählt man diejenigen Volksgruppen, in denen fast keine einzige Familie (eine von 1.000 oder weniger) zu Christus gehört oder die Bibel als Gottes Wort anerkennt. 
 'Frontier'-Volksgruppen sind zutiefst misstrauisch gegenüber Gemeindegründungsmodellen, die einzelne aus ihren Familien in Versammlungen von Fremden ziehen, und missverstehen Missionsbemühungen häufig als imperialistische westliche Agenda, um prowestliche Verbündete zu schaffen.
-Es gibt mehr als 4.000 Volksgruppen, auf die diese Beschreibung zutrifft. 
  
 Die regelmäßige Evangelisierung von Einzelpersonen (auf Kosten der Familienbeziehungen) ist daher kontraproduktiv und bestätigt die Befürchtungen der Gemeinschaft, 
 dass die "fremden Christen" ihre Familien und Gemeinschaften zerstören wollen. 
