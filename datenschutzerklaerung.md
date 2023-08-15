@@ -5,7 +5,7 @@ permalink: /datenschutzerklaerung/
 ---
 <h1>Datenschutzerklärung</h1>
 Im Folgenden möchten wir dich aufklären, wie deine Daten von uns verarbeitet werden.
-
+  
 Verantwortlich im Sinne der DSGVO ist:  
 
 Markus Endres  
