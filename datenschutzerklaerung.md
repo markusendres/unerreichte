@@ -9,7 +9,6 @@ Im Folgenden möchten wir dich aufklären, wie deine Daten von uns verarbeitet w
 <br />
 Verantwortlich im Sinne der DSGVO ist:  
 <br />
-<br />
 
 Markus Endres  
 Saarstr. 7  
