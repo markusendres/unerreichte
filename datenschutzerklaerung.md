@@ -13,9 +13,9 @@ Verantwortlich im Sinne der DSGVO ist:
 
 Markus Endres  
 Saarstr. 7  
-91052 Erlangen  
-Telefon: 0176/86176121  
+91052 Erlangen    
 E-Mail: kontakt[at]unerreichte.de  
+Telefon: 0176/86176121
 
 <h2>Datenschutz</h2>
 
