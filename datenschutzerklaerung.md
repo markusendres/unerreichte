@@ -7,10 +7,11 @@ permalink: /datenschutzerklaerung/
 Im Folgenden möchten wir dich aufklären, wie deine Daten von uns verarbeitet werden.
 
 Verantwortlich im Sinne der DSGVO ist:
-<p>Markus Endres<br />
-Saarstr. 7<br />
-91052 Erlangen<br />
-kontakt[at]unerreichte.de</p>
+<p>Markus Endres  
+Saarstr. 7  
+91052 Erlangen  
+Telefon: 0176/86176121  
+E-Mail: kontakt[at]unerreichte.de</p>
 
 <h2>Datenschutz</h2>
 
