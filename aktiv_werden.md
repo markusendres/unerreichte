@@ -15,5 +15,7 @@ Neben deinem aktiven Einsatz im Gebet kannst du dich auch durch praktische Täti
     * [Mehr Informationen und Kontaktdaten findest du hier](https://joshuaproject.net/get_involved/with_joshua_project) 
 
 **Kurzzeiteinsätze bei christlichen Werken**
+
+Die Chance zu Kurzzeiteinsätzen im Zusammenhang mit unerreichten Volksgruppen bietet sich bei den folgenden Organisationen an:
 * [Ethnos360](https://ethnos360.de)
 * [Wycliff Deutschland](https://wycliff.de)
