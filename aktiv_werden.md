@@ -10,5 +10,6 @@ Neben deinem aktiven Einsatz im Gebet kannst du dich auch durch praktische Täti
     * helfen beim Anlegen oder Ergänzen von Profilen
     * Texte für unerreichte Volksgruppen erstellen, die bisher noch keinen Profiltext besitzen
     * auf kreatives Weise die Seite Etnopedia im deutschsprachigen Europa bekannt machen
-    * [Mehr Infos und Kontaktdaten hier](https://de.etnopedia.org/wiki/index.php/Etnopedia:Die_Unerreichten_erreichen)
-
+    * [Mehr Informationen und Kontaktdaten findest du hier](https://de.etnopedia.org/wiki/index.php/Etnopedia:Die_Unerreichten_erreichen)
+* Wenn sowohl deine Englisch- als auch deine Deutschkenntnisse im schriftlichen gut sind, könntest du auch bei **Joshua Project** möglicherweise Texte vons Englische ins Deutsche übersetzen. Wende dich dazu direkt an Josuha Project.
+    * [Mehr Informationen und Kontaktdaten findest du hier](https://joshuaproject.net/get_involved/with_joshua_project) 
