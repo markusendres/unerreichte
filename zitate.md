@@ -33,5 +33,5 @@ permalink: /zitate/
 "Gott gebraucht Menschen, die schwach und bedürftig genug sind, sich auf ihn zu stützen."  
 *Hudson Taylor*
 
-"Ich glaube, es wird nur am letzten Tag bekannt sein, wie viel in Übersee-Missionen durch die Gebete der ernsthaften Gläubigen zu Hause erreicht wurde."
+"Ich glaube, es wird nur am letzten Tag bekannt sein, wie viel in Übersee-Missionen durch die Gebete der ernsthaften Gläubigen zu Hause erreicht wurde."  
 *James O. Frasor*
