@@ -33,7 +33,7 @@ minima:
 header_pages:
   - informieren.md
   - beten.md
-  - gehen.md
+  - aktiv_werden.md
 
 # Build settings
 theme: minima
