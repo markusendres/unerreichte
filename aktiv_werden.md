@@ -13,3 +13,7 @@ Neben deinem aktiven Einsatz im Gebet kannst du dich auch durch praktische Täti
     * [Mehr Informationen und Kontaktdaten findest du hier](https://de.etnopedia.org/wiki/index.php/Etnopedia:Die_Unerreichten_erreichen)
 * Wenn sowohl deine Englisch- als auch deine Deutschkenntnisse im schriftlichen gut sind, könntest du auch bei **Joshua Project** möglicherweise Texte vons Englische ins Deutsche übersetzen. Wende dich dazu direkt an Joshua Project.
     * [Mehr Informationen und Kontaktdaten findest du hier](https://joshuaproject.net/get_involved/with_joshua_project) 
+
+**Kurzzeiteinsätze bei christlichen Werken**
+* [Ethnos360](https://ethnos360.de)
+* [Wycliff Deutschland](https://wycliff.de)
