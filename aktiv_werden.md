@@ -19,3 +19,4 @@ Neben deinem aktiven Einsatz im Gebet kannst du dich auch durch praktische Täti
 Die Chance zu Kurzzeiteinsätzen im Zusammenhang mit unerreichten Volksgruppen bietet sich bei den folgenden Organisationen an:
 * [Ethnos360](https://ethnos360.de)
 * [Wycliff Deutschland](https://wycliff.de)
+* [Frontiers](https://frontiers.de)
