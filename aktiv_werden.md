@@ -23,7 +23,6 @@ Die  jeweilige Dauer ist abhängig von vielen verschiedenen Faktoren und wird mi
 Kurzzeiteinsätzen im Zusammenhang mit unerreichten Volksgruppen bieten folgende Organisationen an:
 * [Ethnos360](https://ethnos360.de)
 * [Wycliff Deutschland](https://wycliff.de)
-* [Frontiers](https://frontiers.de)
 
 **Vorbereitung für einen Langzeiteinsatz**
 
@@ -32,4 +31,3 @@ Gott ruft auch „Langstreckenläufer“ in seinen Dienst unter die unerreichten
 Folgende Werke können empfohlen werden:
 * [Ethnos360](https://ethnos360.de)
 * [Wycliff Deutschland](https://wycliff.de)
-* [Frontiers](https://frontiers.de)
