@@ -4,6 +4,7 @@
 
 layout: home
 title: Unerreichte Volksgruppen
+permalink: /index2/
 ---
 **Jesus Christus spricht:**
 
