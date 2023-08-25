@@ -6,6 +6,11 @@ layout: home
 title: Unerreichte Volksgruppen
 permalink: /index2/
 ---
+Links:
+* <a href="/informieren">informieren</a>
+* <a href="/beten">beten</a>
+* <a href="/aktiv_werden">aktiv werden</a>
+
 **Jesus Christus spricht:**
 
 > Mir ist gegeben alle Macht im Himmel und auf Erden.  
