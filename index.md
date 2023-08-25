@@ -9,7 +9,7 @@ permalink: /index2/
 Links:
 * <a href="/informieren">informieren</a>
 * <a href="/beten">beten</a>
-* <a href="/aktiv_werden">aktiv werden</a>
+* <a href="/aktiv-werden">aktiv werden</a>
 
 **Jesus Christus spricht:**
 
