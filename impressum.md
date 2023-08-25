@@ -1,11 +1,8 @@
 ---
 layout: page
-title: Datenschutzerklärung und Impressum
+title: Impressum
 permalink: /impressum/
 ---
-
-<h1>Impressum</h1>
-
 <h2>Angaben gem&auml;&szlig; &sect; 5 TMG</h2>
 <p>Markus Endres<br />
 Saarstr. 7<br />
