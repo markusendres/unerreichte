@@ -31,9 +31,9 @@ minima:
   date_format: "%d.%m.%Y"
 
 header_pages:
-  - informieren.md
-  - beten.md
-  - aktiv_werden.md
+#  - informieren.md
+#  - beten.md
+#  - aktiv_werden.md
 
 # Build settings
 theme: minima
