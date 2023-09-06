@@ -47,3 +47,6 @@ permalink: /zitate/
 
 "Sorgen sind die vorausbezahlten Zinsen für Probleme, die selten eintreffen. Der Beginn der Sorge ist das Ende des Glaubens. Der Beginn wahren Glaubens ist das Ende der Sorge."  
 *Georg Müller*
+
+"Von dem unsichtbaren Gott abhängen bedeutet nicht, keine Stütze zu haben; die Stütze ist nur unsichtbar."  
+*Georg Müller*
