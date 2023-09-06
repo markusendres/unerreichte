@@ -38,3 +38,9 @@ permalink: /zitate/
 
 "Der große Fehler der Kinder Gottes ist, dass sie nicht beständig weiterbeten."  
 *Georg Müller*
+
+"Die geistliche Kraft in unserem Leben steht in einem genauen Verhältnis zu dem Platz, den die Bibel in unserem Leben und in unseren Gedanken einnimmt."  
+*Georg Müller*
+
+"Es steht einem Heiligen nicht gut an, dass er seine Zeit vertrödelt, da er ja mit dem kostbaren Blut Jesu erkauft ist, um sich selbst samt seiner Zeit und allem, was er hat, Gott zur Verfügung zu stellen."  
+*Georg Müller*
