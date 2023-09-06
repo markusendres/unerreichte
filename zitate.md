@@ -35,3 +35,6 @@ permalink: /zitate/
 
 "Ich glaube, es wird nur am letzten Tag bekannt sein, wie viel in Übersee-Missionen durch die Gebete der ernsthaften Gläubigen zu Hause erreicht wurde."  
 *James O. Frasor*
+
+"Der große Fehler der Kinder Gottes ist, dass sie nicht beständig weiterbeten."  
+*Georg Müller*
