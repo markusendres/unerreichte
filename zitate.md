@@ -44,3 +44,6 @@ permalink: /zitate/
 
 "Es steht einem Heiligen nicht gut an, dass er seine Zeit vertrödelt, da er ja mit dem kostbaren Blut Jesu erkauft ist, um sich selbst samt seiner Zeit und allem, was er hat, Gott zur Verfügung zu stellen."  
 *Georg Müller*
+
+"Sorgen sind die vorausbezahlten Zinsen für Probleme, die selten eintreffen. Der Beginn der Sorge ist das Ende des Glaubens. Der Beginn wahren Glaubens ist das Ende der Sorge."  
+*Georg Müller*
