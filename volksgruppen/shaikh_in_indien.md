@@ -9,6 +9,13 @@ permalink: /volksgruppen/shaikh_in_indien
   grid-template-rows: 80px 80px;
   grid-template-columns: 200px 200px 200px;
 }
+@media only screen and (max-width: 600px) {
+	.grid-container {
+  		display: grid;
+  		grid-template-rows: 80px 80px 80px;
+  		grid-template-columns: 200px 200px;
+	}
+}
 </style>
 
 <div class="grid-container">
