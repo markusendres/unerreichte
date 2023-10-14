@@ -3,8 +3,19 @@ layout: page
 title: Shaikh in Indien
 permalink: /volksgruppen/shaikh_in_indien
 ---
+<style>
+  .flex-box {
+	display:flex; 
+	justify-content: space-around;
+  }
+</style>
 
-Bevölkerung: 72.220.000  
+<div class="flex-box">
+  <div>
+    Bevölkerung: 72.220.000  
+  </div>  
+</div>
+
 Hauptsprache: Urdu (Indien)  
 Größte Religion: Islam (100%)  
 Christen: 0,00%  
