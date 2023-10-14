@@ -4,28 +4,39 @@ title: Shaikh in Indien
 permalink: /volksgruppen/shaikh_in_indien
 ---
 <style>
-.flex-box {
-	display:flex; 
-	justify-content: space-around;
-}
-.flex-box > div {
-	display: flex;
-	flex-direction: column;
-	align-items:center;
+.grid-container {
+  display: grid;
+  grid-template-rows: 80px 80px;
+  grid-template-columns: 200px 200px 200px;
 }
 </style>
 
-<div class="flex-box">
+<div class="grid-container">
   <div>
-    Bevölkerung: 72.220.000  
+    Bevölkerung:<br /> 72.220.000  
   </div>  
+  <div>
+    Hauptsprache:<br /> Urdu (Indien) 
+  </div>
+  <div>
+    Größte Religion: <br /> Islam (100%)  
+  </div>
+  <div>
+	  Christen: <br /> 0,00% 
+  </div>
+  <div>
+	  Evangelikale: <br /> Unbekannt  
+  </div>
+  <div>
+	  Bibelübersetzung: <br /> vollständig vorhanden (Urdu)  
+  </div>
 </div>
 
-Hauptsprache: Urdu (Indien)  
-Größte Religion: Islam (100%)  
-Christen: 0,00%  
-Evangelikale: Unbekannt  
-Bibelübersetzung: vollständig vorhanden (Urdu)  
+ 
+
+ 
+
+
 
 **Hintergrund / Geschichte**  
 
