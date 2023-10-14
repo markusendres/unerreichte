@@ -4,10 +4,15 @@ title: Shaikh in Indien
 permalink: /volksgruppen/shaikh_in_indien
 ---
 <style>
-  .flex-box {
+.flex-box {
 	display:flex; 
 	justify-content: space-around;
-  }
+}
+.flex-box > div {
+	display: flex;
+	flex-direction: column;
+	align-items:center;
+}
 </style>
 
 <div class="flex-box">
