@@ -52,5 +52,5 @@ permalink: /zitate/
 *Georg Müller*
 
 "Studiere ihn, um ihn immer besser kennenzulernen!  
-Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
+Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."  
 *George Whitefield*
