@@ -50,3 +50,7 @@ permalink: /zitate/
 
 "Von dem unsichtbaren Gott abhängen bedeutet nicht, keine Stütze zu haben; die Stütze ist nur unsichtbar."  
 *Georg Müller*
+
+"Studiere ihn, um ihn immer besser kennenzulernen!  
+Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
+*George Whitefield*
