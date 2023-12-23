@@ -54,3 +54,15 @@ permalink: /zitate/
 "Studiere ihn, um ihn immer besser kennenzulernen!  
 Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."  
 *George Whitefield*
+
+"Es gibt solche, die innerhalb Klangweite von Kirchen- oder Kapellenglocken zu leben wünchen. Ich aber möchte ein Geschäft zur Errettung innerhalb eines Abstandes von einem Meter vor der Hölle unterhalten."  
+*C.T. Studd*
+
+"Wenn Jesus Christus Gott ist und für mich starb, dann kann für mich kein Opfer für ihn zu groß sein."  
+*C.T. Studd*  
+
+"Das Evangelium breitet sich nur langsam und behutsam aus, wenn die Gläubigen nicht früh und spät bei ihrem Gebet sind."  
+*C.T. Studd*
+
+"Ich lebe von Gottes Hand in meinen Mund."  
+*C.T. Studd*
