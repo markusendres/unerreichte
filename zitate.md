@@ -55,7 +55,7 @@ permalink: /zitate/
 Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."  
 *George Whitefield*
 
-"Es gibt solche, die innerhalb Klangweite von Kirchen- oder Kapellenglocken zu leben wünchen. Ich aber möchte ein Geschäft zur Errettung innerhalb eines Abstandes von einem Meter vor der Hölle unterhalten."  
+"Es gibt solche, die innerhalb Klangweite von Kirchen- oder Kapellenglocken zu leben wünschen. Ich aber möchte ein Geschäft zur Errettung innerhalb eines Abstandes von einem Meter vor der Hölle unterhalten."  
 *C.T. Studd*
 
 "Wenn Jesus Christus Gott ist und für mich starb, dann kann für mich kein Opfer für ihn zu groß sein."  
