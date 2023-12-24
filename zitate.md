@@ -65,4 +65,7 @@ Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
 *C.T. Studd*
 
 "Ich lebe von Gottes Hand in meinen Mund."  
-*C.T. Studd*
+*C.T. Studd*  
+
+"Wir haben hier nur ein Leben, wie schnell vergeht die Zeit! Nur das, was für Christus wir taten, bleibt auch in Ewigkeit."  
+*C.T. Studd*  
