@@ -69,3 +69,6 @@ Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
 
 "Wir haben hier nur ein Leben, wie schnell vergeht die Zeit! Nur das, was für Christus wir taten, bleibt auch in Ewigkeit."  
 *C.T. Studd*  
+
+"Wenn ein Auftrag eines irdischen Königs als Ehre gilt, wie kann dann ein Auftrag eines himmlischen Königs als Opfer betrachtet werden?"  
+*David Livingstone*  
