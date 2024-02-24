@@ -72,3 +72,6 @@ Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
 
 "Wenn ein Auftrag eines irdischen Königs als Ehre gilt, wie kann dann ein Auftrag eines himmlischen Königs als Opfer betrachtet werden?"  
 *David Livingstone*  
+
+"Expect great things from God, attempt great things for God."  
+*William Carey*
