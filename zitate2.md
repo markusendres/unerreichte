@@ -1,4 +1,8 @@
-Ohne Bezug zu unerreichten Volksgruppen
+Ohne direkten Bezug zu unerreichten Volksgruppen
+
+Thema Gebet  
+"Beten sollte niemals eine Entschuldigung für Untätigkeit sein. Nehemiah betete, aber er stellte auch Wachen zum Schutz auf."  
+*Corrie ten Boom*  
 
 Thema Gemeinde
 
