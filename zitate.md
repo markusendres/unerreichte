@@ -74,4 +74,8 @@ Denn je mehr du ihm kennenlernst, desto mehr wirst du ihn lieben."
 *David Livingstone*  
 
 "Expect great things from God, attempt great things for God."  
-*William Carey*
+*William Carey*  
+
+"The lost and unreached mean everything to God. They should mean everything to us.”  
+*Alliance for the Unreached*  
+
